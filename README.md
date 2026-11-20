@@ -39,5 +39,5 @@ The workbook is divided into distinct sheets, each tackling a real-world busines
 ## 📞 Let's Connect
 
 *   **Author:** [Sukrit Chatterjee] 
-*   **LinkedIn:** [Your LinkedIn URL]
-*   **Email:** [Your Professional Email]
+*   **LinkedIn:** (https://www.linkedin.com/in/sukrit-chatterjee-311251288?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+
